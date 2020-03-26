@@ -1,1 +1,10 @@
-# Coffee-Bot Hi New Clan Members we have a few rules:                                                                                         1. Members only 18+                                                                                                                         2. No Harassment of any sort!!!!!                                                                                                           3. Please Be 970+                                                                                                                           4. DO NOT RAGE!!!!!                                                                                                                         5. HAVE FUN!!!!                                                                                                                             6.Do Not GET MAD IF WE DON'T HELP YOU WITH EVERYTHING we are glad to                                                                          help but we can't help everybody.                                                                                                        7. DO NOT BUG US to do everything.                                                                                                          8.HAVE THE BEST TIME YOU CAN!!!!!!                                                                                                          9.Thank You For Joining BRCB!!!!
+# Coffee-Bot We have a few rules:
+# 1.Be 18+ anyone younger than 18 will be rejected
+# 2.NO HARASSMENT OF ANY SORT (MEMBERS WHO VIOLATE THIS RULE WILL BE BANNED)!!!!
+# 3.NO GETTING MAD IF WE CAN'T HELP YOU WITH EVERYTHING!!!
+# 4.MUST BE 970+
+# 5.HELP OUT YOUR CLANMATES IF YOU CAN
+# 6.IF YOU SEE ANYTHING INAPPROPRIATE PLEASE REPORT IT TO AN ADMIN IMMEDIATELY!!!!
+# 7.IF YOU SEE ANYTHING THAT INVOLVES SENSITIVE MATTERS BEING MADE FUN OF OR JOKED ABOUT (ex.9/11) TELL AN ADMIN IMMEDIATELY AND THAT PERSON WILL BE BANNED.
+# 8.NO MAKING FUN OR JOKING ABOUT SENSITIVE EVENTS LIKE I SAID PREVIOUSLY (ex.9/11).
+# 9.Finally HAVE FUN AND ENJOY!!!!
